@@ -1,1 +1,1 @@
-# **Tean Project**
+# **Team Project**
